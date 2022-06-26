@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @kelemu7
-- 👀 I’m interested in progaraming.
+- 👀 I’m interested in programming.
 - 📫 contact on
       Gmail: kelemuketsela77@gmail.com
       LinkedIn:https://www.linkedin.com/in/kelemu-ketsela-3644771a0
